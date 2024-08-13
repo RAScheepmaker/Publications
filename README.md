@@ -1,4 +1,4 @@
-Publications
+Publications of Dr. Remco A. Scheepmaker
 ============
 
 ## Ph.D. thesis (2009)
